@@ -1,6 +1,6 @@
 " 𝙒𝙝𝙚𝙣 𝙮𝙤𝙪'𝙧𝙚 𝗻𝗼𝘄 𝙖 𝙥𝙖𝙧𝙩 𝙤𝙛 𝙩𝙝𝙚 𝗩𝗼𝘅𝗧𝗲𝗸 𝗧𝗲𝗮𝗺, 𝙄 𝙝𝙖𝙩𝙚 𝙩𝙤 𝙗𝙚𝙖𝙧 𝙗𝙖𝙙 𝙣𝙚𝙬𝙨 𝙢𝙮 𝙛𝙧𝙞𝙚𝙣𝙙, 𝙗𝙪𝙩 𝙮𝙤𝙪 𝙬𝙚𝙧𝙚 𝙨𝙤𝙡𝙙 𝙖 𝗱𝗿𝗲𝗮𝗺. "
 
-<img width="585" height="438" alt="Image" src="https://github.com/user-attachments/assets/c51fdd00-edf2-4019-ab6f-96f48b46e074" />
+<img width="720" height="704" alt="Image" src="https://github.com/user-attachments/assets/25d61a10-86fc-43f6-8f7e-2c4c31bfc61c" />
 
 ════════════════════
 
@@ -58,6 +58,6 @@
 
 ════════════════════
 
-<img width="656" height="818" alt="Image" src="https://github.com/user-attachments/assets/2904ee86-c5b9-49e2-8f7b-318f7ca46993" />
+<img width="502" height="707" alt="Image" src="https://github.com/user-attachments/assets/ffe61c83-5dae-4d68-8c7e-b3087d34dead" />
 
 " 𝘽𝙤𝙩𝙩𝙤𝙢 𝙤𝙛 𝙩𝙝𝙚 𝙛𝙤𝙤𝙙 𝙘𝙝𝙖𝙞𝙣. 𝙅𝙤𝙗𝙨 𝙡𝙞𝙠𝙚 𝙩𝙝𝙞𝙨 𝙖𝙧𝙚 𝙥𝙪𝙧𝙚 𝙥𝙖𝙞𝙣. 𝙒𝙤𝙤𝙖𝙖𝙖𝙝𝙝𝙝𝙝!! "
